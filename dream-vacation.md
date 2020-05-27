@@ -1,0 +1,1 @@
+I would love to treck the Pacific Crest Trail. Dedicating so much time to accomplish that adventure would be far more rewarding compared to a more traditional touristy vacation. That kind of experience would provide an opportunity to get away from everyday life but also push myself to achieve something not everyone can do.
